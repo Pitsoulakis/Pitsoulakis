@@ -1,7 +1,7 @@
 # Dimitrios Pitsoulakis, MEng, HMU
 
 **⚙️ MEng Mechanical Engineer · CFD · Energy Systems · Automation**
-jj
+
 📍 Heraklion, Crete, GR &nbsp;|&nbsp; 🎓 HMU · GPA 8.51/10 &nbsp;|&nbsp; ⚡ Certified Energy Inspector · TEE
 
 > *Always open to research collaborations, R&D roles and energy engineering projects in Crete.*
